@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 Undergraduate | Computing & IS @ SUSL | Tech enthusiast
 
 
